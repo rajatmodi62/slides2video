@@ -4,7 +4,10 @@ slides2video
 
 tired of making videos for your papers?
 solo author?
-or maybe even worse: you have army of coauthors, but no one is doing anything. 
+or maybe even worse: you have army of coauthors, 
+but they all are busy lol.
+ 
+
 
 and now conference dudes want a poster, video, and full passport registration from a poor student. 
 
