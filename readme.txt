@@ -2,8 +2,9 @@ slides2video
 
 tired of making videos for your papers?
 solo author?
-chances are you did paper writing, rebuttal alone. 
-and now conference dudes want a poster, video, and full passport registration from you. 
+or maybe even worse: you have army of coauthors, but no one is doing anything. 
+
+and now conference dudes want a poster, video, and full passport registration from a poor student. 
 
 so you are pissed: everyone keeps demanding stuff, and no one pays attention. 
 it is time to take shortcuts.
