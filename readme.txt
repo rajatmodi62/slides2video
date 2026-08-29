@@ -6,9 +6,10 @@ or maybe even worse: you have army of coauthors, but no one is doing anything.
 
 and now conference dudes want a poster, video, and full passport registration from a poor student. 
 
-so you are pissed: everyone keeps demanding stuff, and no one pays attention. 
-it is time to take shortcuts.
-use this. 
+so you are pissed: everyone wants to suck your soul.
+
+and thus it is time to take shortcuts.
+use this weapon. 
 
 ----
 
