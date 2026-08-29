@@ -4,8 +4,9 @@ tired of making videos for your papers?
 solo author?
 chances are you did paper writing, rebuttal alone. 
 and now conference dudes want a poster, video, and full passport registration from you. 
+
 so you are pissed: everyone keeps demanding stuff, and no one pays attention. 
-so it is time to take shortcuts.
+it is time to take shortcuts.
 use this. 
 
 ----
