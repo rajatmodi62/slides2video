@@ -1,4 +1,6 @@
 slides2video 
+--------
+
 
 tired of making videos for your papers?
 solo author?
@@ -11,7 +13,7 @@ so you are pissed: everyone wants to suck your soul.
 and thus it is time to take shortcuts.
 use this weapon. 
 
-----
+---------
 
 
 just make a ppt, add your slide notes, and this code will take care of the rest. 
